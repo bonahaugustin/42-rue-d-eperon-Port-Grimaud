@@ -20,12 +20,9 @@ author: Augustin Bonah
 ###############################################
 
 navbar-links:
-  La cuisine: "La cuisine"
-  Le salon: "Le salon"
-  Les chambres: "Les chambres"
-  Les salles de bains: "Les salles de bains"
-  Le jardin: "Le jardin"
-  Autres: "Autres"
+  La cuisine: 
+  - La cuisine: "La cuisine"
+  
   
 ################
 # --- Logo --- #

@@ -18,6 +18,12 @@ Ces deux chambres distinctes permettent de répondre aux besoins de toute la fam
 
 ![1](assets/1.jpeg)
 
+**La vue du balcon de la chambre des parents**
+
+![37](37.jpeg)
+
+![38](38.jpeg)
+
 **Chambre d’enfants pratique et fonctionnelle**  
 
 La chambre pour enfants est conçue pour être à la fois pratique et adaptée aux besoins des plus jeunes :  

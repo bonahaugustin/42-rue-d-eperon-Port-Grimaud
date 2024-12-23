@@ -19,7 +19,7 @@ Pour toute information complémentaire ou pour organiser une visite de ce magnif
 **Tarifs** 
 
 - La semaine: 1200 €
-- La journée: 150 €
+- La journée: 200 €
 - Pour des durées différentes, le prix sera rediscuté et adapaté. 
 
 Nous sommes disponibles pour toute demande et nous ferons notre possible pour vous fournir une réponse rapide et détaillée.

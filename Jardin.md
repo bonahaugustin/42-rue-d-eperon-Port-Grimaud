@@ -17,8 +17,6 @@ Ce jardin est un véritable atout, mêlant convivialité, détente, et fonctionn
 
 ![23](23.jpeg)
 
-![24](24.jpeg)
-
 ![25](25.jpeg)
 
 ![30](30.jpeg)

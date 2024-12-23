@@ -12,6 +12,14 @@ Pour toute information complémentaire ou pour organiser une visite de ce magnif
 
 **Téléphone** : (+33) 0622224666
 
+**Instagram**: @42eperonpg
+
 **Adresse** : 42 Rue de l'Éperon, Port-Grimaud, Var, France (83310 Grimaud)
+
+**Tarifs** 
+
+- La semaine: 1200 €
+- La journée: 150 €
+- Pour des durées différentes, le prix sera rediscuté et adapaté. 
 
 Nous sommes disponibles pour toute demande et nous ferons notre possible pour vous fournir une réponse rapide et détaillée.
